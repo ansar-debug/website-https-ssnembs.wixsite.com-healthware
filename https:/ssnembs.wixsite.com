@@ -1,2 +1,2 @@
 You can directly go and check my webiste with the below url
-https://ssnembs.wixsite.com/healthware
+www.ssnembs.wixsite.com/healthware
